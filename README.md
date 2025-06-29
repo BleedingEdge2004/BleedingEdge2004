@@ -12,3 +12,7 @@
 #### Linkedin :- https://www.linkedin.com/in/sachin-kumar-yadav
 # 😄 Pronouns:
 #### He/Him
+# Resume
+![ResumePic1](https://github.com/user-attachments/assets/35157c55-d91d-47c3-b385-e2eea1c12be7)
+
+![ResumePic2](https://github.com/user-attachments/assets/d39c8265-c91b-4b82-a7ea-81fea931c7f6)
