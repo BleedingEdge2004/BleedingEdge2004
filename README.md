@@ -1,5 +1,5 @@
 # 👋 Hi, I’m SachinKumarYadav as @BleedingEdge2004 ...
-### Welcome to my GitHub Account Here I have added my Project and Coding Jorney with my Tech Friends
+### Welcome to my GitHub Account Here I have added my Project and Coding Journey with my Tech Friends
 # 👀 I’m interested in ...
 ### - Learning New Techs
 ### - Web Development
