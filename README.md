@@ -9,7 +9,7 @@
 ### - JavaScript and it's Frameworks Node,Express,React
 # 📫 How to reach me
 #### e-mail :- skyslk2004@gmail.com
-#### Linkedin :- https://www.linkedin.com/in/sachin-kumar-yadav
+#### Linkedin :- https://www.linkedin.com/in/sachin-kumar-yadav-822964179
 # 😄 Pronouns:
 #### He/Him
 # Resume
